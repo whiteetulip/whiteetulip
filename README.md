@@ -8,8 +8,11 @@ literally me^^^
 🍎PONYTOWN🍎
 
 𝄞 im usually pretty shy when im active but if you interact it makes me very happy and ill be pretty talkative!
+
 𝄞 if im active its usually w2i if your interested in conversation :>>
+
 𝄞 AFK or not i appreciate and encourage c+h!!! your welcome to sit by me whenever!
+
 PS: ponytown controls often confuse me so I may click the wrong action alot when playing ESPECIALLY when im on mobile🥲
 
 <img width="250" height="180" alt="IMG_0501" src="https://github.com/user-attachments/assets/67bd63b9-c69a-4a9f-847c-77ad5f018291" />
