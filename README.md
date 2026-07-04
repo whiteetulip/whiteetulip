@@ -3,10 +3,10 @@ literally me^^^
 
 𝄞 hello! my name is bella!! im using github+ponytown on my safari browser during weekdays so its pretty shitty :,)
 
-𝄞 I am 14!! im looking to make some friends around 13-17 ||I dont have many DNI's aside from racism, homophobia, proshipping + just being flatout a rude person:(
+𝄞 I am 14!! im looking to make some friends ||I dont have many DNI's aside from racism, homophobia, proshipping + just being flatout a rude person:(
 
 🍎PONYTOWN🍎
-
+IF I DONT RESPOND TO WHISPERS I APOLOGIZE IM EITHER ASLEEP OR OFFTAB :((
 𝄞 im usually pretty shy when im active but if you interact it makes me very happy and ill be pretty talkative!
 
 𝄞 if im active its usually w2i if your interested in conversation :>>
