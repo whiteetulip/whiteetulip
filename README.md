@@ -16,7 +16,7 @@ IF I DONT RESPOND TO WHISPERS I APOLOGIZE IM EITHER ASLEEP OR OFFTAB :((
 
 PS: ponytown controls often confuse me so I may click the wrong action alot when playing ESPECIALLY when im on mobile🥲
 
-https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&cad=rja&uact=8&ved=2ahUKEwi1_q7xibuVAxWhFFkFHblcNFIQFnoECC8QAQ&url=https%3A%2F%2Fpony.town%2F&usg=AOvVaw3agnUGfIfAg-pfNibDn2bX&opi=89978449
+<img width="220" height="272" alt="ezgif-349483038106feda" src="https://github.com/user-attachments/assets/3c7579ca-df37-45a9-ae4a-ccd594fbcc75" />
 
 thanks for reading!!!
 
