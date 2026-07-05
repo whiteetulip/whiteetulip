@@ -1,7 +1,8 @@
-<img width="480" height="360" alt="IMG_0500" src="https://github.com/user-attachments/assets/31e7faef-a14c-437b-adbc-6afd2b81c1c9" />
+<img width="750" height="422" alt="tumblr_21c509b8af68970dd7ee8100c222b863_0ad7fbc9_1280" src="https://github.com/user-attachments/assets/a41f3e5b-f677-445e-974c-a1ea4c4b037f" />
+
 literally me^^^
 
-𝄞 hello! my name is bella!! im using github+ponytown on my safari browser during weekdays so its pretty shitty :,)
+𝄞 welcome welcomee,,, hello! my name is bella!! im using github+ponytown on my safari browser during weekdays so its pretty shitty :,)
 
 𝄞 I am 14!! im looking to make some friends ||I dont have many DNI's aside from racism, homophobia, proshipping + just being flatout a rude person:(
 
@@ -15,7 +16,8 @@ IF I DONT RESPOND TO WHISPERS I APOLOGIZE IM EITHER ASLEEP OR OFFTAB :((
 
 PS: ponytown controls often confuse me so I may click the wrong action alot when playing ESPECIALLY when im on mobile🥲
 
-<img width="250" height="180" alt="IMG_0501" src="https://github.com/user-attachments/assets/67bd63b9-c69a-4a9f-847c-77ad5f018291" />
+https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&cad=rja&uact=8&ved=2ahUKEwi1_q7xibuVAxWhFFkFHblcNFIQFnoECC8QAQ&url=https%3A%2F%2Fpony.town%2F&usg=AOvVaw3agnUGfIfAg-pfNibDn2bX&opi=89978449
 
 thanks for reading!!!
-💓💓you are loved and appreciated💓💓
+
+caw caw
