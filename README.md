@@ -20,6 +20,7 @@ IF I DONT RESPOND TO WHISPERS/CHATS I APOLOGIZE IM EITHER ASLEEP OR OFFTAB :((
 PS: ponytown controls often confuse me so I may click the wrong action alot when playing ESPECIALLY when im on mobile🥲
 
 <img width="220" height="272" alt="ezgif-349483038106feda" src="https://github.com/user-attachments/assets/3c7579ca-df37-45a9-ae4a-ccd594fbcc75" />
+<img width="600" height="80" alt="ezgif-68b722b835a94ae4" src="https://github.com/user-attachments/assets/49320de3-a541-442f-ab75-e935c9f7e614" />
 
 thanks for reading!!!
 
