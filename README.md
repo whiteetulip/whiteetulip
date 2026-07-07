@@ -23,7 +23,8 @@ PS: ponytown controls often confuse me so I may click the wrong action alot when
 <img width="150" height="20" alt="tumblr_f0b729afb9f24bbb559aebb820aa04c9_378d565b_250" src="https://github.com/user-attachments/assets/ef572ea5-33e8-4aad-9b2a-713740fdd61e" />
 <img width="150" height="20" alt="classpect-blinkie (1)" src="https://github.com/user-attachments/assets/1a1110c9-bb95-4ff2-b15a-e68cabb93dd5" />
 <img width="150" height="20" alt="ezgif-68b722b835a94ae4 (1)" src="https://github.com/user-attachments/assets/d6163d19-bc4a-463f-9d7f-c8ba36f3e608" />
-<img width="300" height="40" alt="tumblr_6c0332f3320975eb164e7e357090e397_65432c78_400" src="https://github.com/user-attachments/assets/1d4b18c4-3409-448f-87d9-f938b04f9674" />
+<img width="150" height="20" alt="tumblr_6c0332f3320975eb164e7e357" src="https://github.com/user-attachments/assets/ba69c09f-e49b-463c-a926-2c4a6e2fd888" />
+
 <img width="150" height="20" alt="derse_blinkie (1)" src="https://github.com/user-attachments/assets/8932c5e6-be13-480b-9764-cddf7eda2232" />
 
 
